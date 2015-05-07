@@ -1,5 +1,3 @@
-#Ten Things I Would Name 
-
 #Table Time!
 #####Top Ten Names I Would Give a Capybara if I Met One
 | # | Name |
